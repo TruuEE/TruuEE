@@ -1,1 +1,1 @@
-![__fu_hua_elysia_mobius_aponia_and_eden_honkai_and_1_more_drawn_by_eta__13c6fb2d07b4821e0a972d2e43b1eecc](https://github.com/TruE-0/TruE-0/assets/64764533/6abc37ea-196d-4afa-9b1a-fde727aba17b)
+![__elysia_honkai_and_1_more_drawn_by_annnnq__aa8dce606a6020eee1634171dcae24bf](https://github.com/TruE-0/TruE-0/assets/64764533/83f8c17f-fc6f-4e40-95e2-4585f32457be)
