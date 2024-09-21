@@ -1,3 +1,4 @@
 Welcome!
-![KitaIkuyo](https://github.com/user-attachments/assets/3f688d62-530c-4cad-a231-8948e70c08c0)
+![Kita_Ikuyo](https://github.com/user-attachments/assets/a1664d68-3f65-4f96-a90c-312cae63fadd)
+
 
