@@ -2,5 +2,6 @@
   Welcome!
 </h1>
 
-![IMG_1407](https://github.com/user-attachments/assets/416b3ffc-00a2-4ddf-a452-8b8a6de63dbd)
+The code for NASA Student Launch will be Public After Competition
+
 
