@@ -2,6 +2,6 @@
   Welcome!
 </h1>
 
-The code for NASA Student Launch will be Public After Competition
+The code for NASA Student Launch will be Public After Competition, as well as the PCB design. 
 
 
